@@ -2,7 +2,7 @@
  
 **Computer Science and Data Science Student @ University of Minnesota**<br>
 Minneapolis, MN<br>
-Reach me: ranas019@umn.edu<br>
+Reach me: ravindu0322@gmail.com<br>
 🔗 [LinkedIn](https://www.linkedin.com/in/ravindu25/)<br>
 🌐 [ranasinghe.dev](https://ranasinghe.dev)
  
