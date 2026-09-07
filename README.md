@@ -1,6 +1,6 @@
 ## Welcome, I'm Ravindu Ranasinghe
  
-**Computer Science, Data Science, and Math Student @ University of Minnesota**<br>
+**Computer Science and Data Science Student @ University of Minnesota**<br>
 Minneapolis, MN<br>
 Reach me: ranas019@umn.edu<br>
 🔗 [LinkedIn](https://www.linkedin.com/in/ravindu25/)<br>
