@@ -4,6 +4,6 @@
 Minneapolis, MN<br>
 Reach me: ravindu0322@gmail.com<br>
 🔗 [LinkedIn](https://www.linkedin.com/in/ravindu25/)<br>
-🌐 [ravindur.dec](https://ravindur.dev)
+🌐 [ravindur.dev](https://ravindur.dev)
  
 Thanks for stopping by. Feel free to reach out, or look through my repos!
